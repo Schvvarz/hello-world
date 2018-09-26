@@ -1,6 +1,10 @@
-# hello-world
-just another repository
-Ziga
 
-I Kiriill, I like play dota and my friends, now I want to understand what all of this.
-blablbalbalbalbla
+1266/5000
+Vash shedevr gotov!
+Povsednevnaya praktika pokazyvayet, chto postoyannoye informatsionno-propagandistskoye obespecheniye nashey deyatel'nosti trebuyut ot nas analiza sistem massovogo uchastiya. Ravnym obrazom ramki i mesto obucheniya kadrov obespechivayet shirokomu krugu (spetsialistov) uchastiye v formirovanii sushchestvennykh finansovykh i administrativnykh usloviy. Raznoobraznyy i bogatyy opyt ramki i mesto obucheniya kadrov trebuyut ot nas analiza modeli razvitiya.
+
+Zadacha organizatsii, v osobennosti zhe slozhivshayasya struktura organizatsii trebuyut opredeleniya i utochneniya pozitsiy, zanimayemykh uchastnikami v otnoshenii postavlennykh zadach. Ravnym obrazom postoyannyy kolichestvennyy rost i sfera nashey aktivnosti trebuyut opredeleniya i utochneniya pozitsiy, zanimayemykh uchastnikami v otnoshenii postavlennykh zadach. Raznoobraznyy i bogatyy opyt novaya model' organizatsionnoy deyatel'nosti trebuyut ot nas analiza pozitsiy, zanimayemykh uchastnikami v otnoshenii postavlennykh zadach. Ideynyye soobrazheniya vysshego poryadka, a takzhe ukrepleniye i razvitiye struktury trebuyut opredeleniya i utochneniya novykh predlozheniy. Raznoobraznyy i bogatyy opyt postoyannoye informatsionno-propagandistskoye obespecheniye nashey deyatel'nosti predstavlyayet soboy interesnyy eksperiment proverki sushchestvennykh finansovykh i administrativnykh usloviy.
+Your masterpiece is ready!
+Everyday practice shows that the constant information and propaganda support of our activity requires us to analyze the systems of mass participation. Equally, the framework and the place of training of personnel provides a wide range (of specialists) with participation in the formation of significant financial and administrative conditions. The diverse and rich experience of the framework and the place of training of personnel require us to analyze the development model.
+
+The task of the organization, especially the established structure of the organization, requires the definition and clarification of the positions held by the participants in relation to the tasks assigned. Equally, the constant quantitative growth and scope of our activity require the definition and clarification of the positions held by the participants in relation to the tasks assigned. The diverse and rich experience of a new model of organizational activity requires us to analyze the positions held by participants in relation to the tasks assigned. Ideological considerations of a higher order, as well as the strengthening and development of the structure, require the definition and refinement of new proposals. Diverse and rich experience the constant information and propaganda support of our activity represents an interesting experiment of checking the essential financial and administrative conditions.
